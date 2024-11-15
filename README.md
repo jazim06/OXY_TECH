@@ -1,1 +1,0 @@
-# OXY_TECH
